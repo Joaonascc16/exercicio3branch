@@ -1,7 +1,22 @@
-Nas Terras Altas da Escócia medieval, onde a névoa descia espessa sobre os vales e o som das gaitas ecoava entre colinas verde-escuras, vivia Brianna, filha de camponeses livres sob a proteção de um pequeno senhor feudal ligado ao clã de Robert the Bruce.
+História de Brianna
 
-Colaboradores: 
-Kaio
+João:
+Nas deslumbrantes e sombrias Terras Altas da Escócia medieval, onde a névoa espessa descia suavemente sobre os vales e o som distante das gaitas cortava o ar gelado, vivia Brianna. Filha de camponeses livres, ela cresceu sob a proteção de um pequeno senhor feudal, leal ao clã de Robert the Bruce. Suas terras, embora humildes, eram um refúgio seguro, onde as montanhas imponentes e os vastos campos verdes pareciam guardar seus segredos e sonhos de um futuro distante.
+
+Victoria:
+Brianna, após descobrir o segredo do artefato mágico, corre de volta para a aldeia para avisar seu povo. Mas, ao chegar, ela encontra sua aldeia tomada por inimigos. Eles capturaram sua família, e ela agora deve decidir se usará o artefato mágico ou se enfrentará o exército com sua coragem.
+
+Desesperada, ela sabe que o artefato pode ser a chave para salvar todos, mas ela teme seu poder.
+
+
+Colaboradores:
+
+João
+
 Victoria Kozloski
+
+Kaio
+
 Gustavo Silva
+
 Luca
