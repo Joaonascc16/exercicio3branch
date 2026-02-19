@@ -10,6 +10,7 @@ Desesperada, ela sabe que o artefato pode ser a chave para salvar todos, mas ela
 
 luca:Ao tocar o artefato, Brianna percebe que ele não é uma arma, mas um portal de memórias. Ela descobre que o líder dos invasores é seu irmão desaparecido, dado como morto, que busca o objeto para quebrar a mesma maldição que agora começa a consumir a pele dela.
 
+Gustavo: O que Brianna viu não eram memórias… eram ilusões criadas pelo próprio artefato... E O verdadeiro vilão não é o exército, nem o irmão — é o próprio objeto, que se alimenta de sacrifícios.
 
 Colaboradores:
 
