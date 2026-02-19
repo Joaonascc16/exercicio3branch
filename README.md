@@ -8,6 +8,8 @@ Brianna, após descobrir o segredo do artefato mágico, corre de volta para a al
 
 Desesperada, ela sabe que o artefato pode ser a chave para salvar todos, mas ela teme seu poder.
 
+luca:Ao tocar o artefato, Brianna percebe que ele não é uma arma, mas um portal de memórias. Ela descobre que o líder dos invasores é seu irmão desaparecido, dado como morto, que busca o objeto para quebrar a mesma maldição que agora começa a consumir a pele dela.
+
 
 Colaboradores:
 
